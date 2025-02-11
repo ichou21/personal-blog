@@ -8,4 +8,4 @@ I'll be updating the blog once in a while.
 
 My default username is icchou233.
 
-Sometimes, I use ichou21 or i3c (:3c).
+Sometimes, I use ichou21 (or for my codeforces profile, i3c).
