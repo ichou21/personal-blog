@@ -14,5 +14,4 @@ In my free time, I like reading random stuff and journaling about any of the ran
 I also enjoy traveling if I have an extended break. My favorite places to go are Taiwan and Japan.
 
 My default username is icchou233 on most sites (Instagram, Discord, Gmail, etc)
-psst if you are to contact me on Discord, please identify yourself
-
+If you are to contact me on Discord, please identify yourself.
